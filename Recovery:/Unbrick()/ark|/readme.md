@@ -1,0 +1,1 @@
+https://archive.org/details/fire_hd_8_and_10_replacement_roms_202201
